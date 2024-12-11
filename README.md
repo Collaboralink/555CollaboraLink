@@ -1,2 +1,2 @@
-# 555CollaboraLink
+# Digitalia.France
 INSCRIPTION COLLABORALINK
