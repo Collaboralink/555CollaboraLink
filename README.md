@@ -1,2 +1,2 @@
 # Digitalia.France
-INSCRIPTION COLLABORALINK
+INSCRIPTION DigitaLÏA France 
